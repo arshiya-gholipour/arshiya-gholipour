@@ -30,7 +30,7 @@ I'm working toward becoming a skilled frontend developer capable of building rea
 
 ## 📫 Contact Me
 
-- Email: youremail@example.com  
+- Email: arshiya12gholipour@gmail.com  
 
 ---
 
